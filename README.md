@@ -9,3 +9,4 @@
 ##III.
 ![Окно результата для задания 1.1]
 (http://cs624429.vk.me/v624429271/3da37/MZGEt6MCkHA.jpg)
+http://compolife.ru/poleznye-sovety/sravnenie-versij-windows-10.html
